@@ -1,0 +1,2 @@
+# Chino
+Get rich
